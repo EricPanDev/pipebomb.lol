@@ -1,5 +1,5 @@
 update: namecheap is a absoloute piece of shit and stole my domain on no grounds, so the new domain is pipebomb.lol
 
-links:
+links (they embed nicely into discord):
 
 https://pipebomb.lol/miku
