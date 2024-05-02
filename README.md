@@ -1,4 +1,4 @@
-update: namecheap is a absoloute piece of shit and stole my domain on no grounds, so the new domain is pipebomb.lol
+update: namecheap is a piece of crap and stole my domain on no grounds, so the new domain is pipebomb.lol
 
 links (they embed nicely into discord):
 
